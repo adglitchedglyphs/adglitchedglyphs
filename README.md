@@ -1,4 +1,4 @@
-# Antimatter Dimensions
+# Antimatter Dimensions Glitched Glyphs mod
 
 ## Run
 
